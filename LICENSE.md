@@ -1,4 +1,4 @@
-# 
+# Polymarket automatic Automation Script: risk-management & custom-strategies is the best Polymarket automation-script, featuring risk-management and custom-strategies. Smart, fast,
 
 
 
